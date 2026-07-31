@@ -20,7 +20,7 @@ henext update next friday!! let's respect non-sharing yumes and lets not harass 
 
 [@Ch3shyre](https://github.com/Ch3shyre) : Leon Kennedy's YUME (sharing)
 
-[@itrap_2245](https://github.com/itrap_2245) : Mafioso's YUME (non-sharing)
+[@itrap-2245](https://github.com/itrap-2245) : Mafioso's YUME (non-sharing)
 
 [@Pleasantseverie](https://github.com/Pleasantseverie) : Grillby's YUME (sharing)
 
@@ -49,3 +49,5 @@ henext update next friday!! let's respect non-sharing yumes and lets not harass 
 [@01yaoimaster](https://github.com/01yaoimaster) : MR.Antenna YUME (sharing)
 
 [@fuminoomi](https://github.com/fuminoomi) : Sans YUME
+
+[@WishingAngel](https://github.com/WishingAngel) : Subspace YUME
