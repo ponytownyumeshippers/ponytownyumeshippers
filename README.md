@@ -26,7 +26,7 @@ next update next friday!! let's respect non-sharing yumes and lets not harass do
 
 [@GraveyardOfStars](https://github.com/GraveyardOfStars) : Baizhus YUME (non-sharing)
 
-[@Peteybenjaminparker](https://github.com/Peteybenjamineparker) : Peter Parker's YUME 
+[@peteybenjaminparker](https://github.com/peteybenjamineparker) : Peter Parker's YUME 
 
 [@MiguelOharaL0ver](https://github.com/MiguelOharaL0ver) : Miguel O'haras YUME (mirror-sharing)
 
@@ -44,7 +44,7 @@ next update next friday!! let's respect non-sharing yumes and lets not harass do
 
 [@AcxerSonnellino](https://github.com/AcxerSonnellino) : Guest 1337's YUME
 
-[@undyingregret](https://github.com/undyingregret) : Azureurath's YUME
+[@undyingregret](https://github.com/undyingregret) : Azurewrath's YUME
 
 [@01yaoimaster](https://github.com/01yaoimaster) : MR.Antenna YUME (sharing)
 
