@@ -32,7 +32,7 @@ next update next friday!! let's respect non-sharing yumes and lets not harass do
 
 [@Xaplastcore](https://github.com/Xaplastcore) : Megatron's YUME (soft-sharing)
 
-[@Kiwiconicc](https://github.com/Kiwiiconicc) : The Purple from among us YUME (sharing)
+[@Kiwiconicc](https://github.com/Kiwiiconicc) : The Purple from among us YUME (mirror-sharing)
 
 [@littleapplemuffins](https://github.com/littleapplemuffins) : Glistens YUME (non-sharing)
 
