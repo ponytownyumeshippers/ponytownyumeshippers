@@ -1,4 +1,4 @@
-next update next friday!! let's respect non-sharing yumes and lets not harass doubles, xoxo-
+updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo-
 
 [@Xaplastcore](https://github.com/Xaplastcore) : Ratcet's from transformers YUME (non-sharing)
 
@@ -22,7 +22,7 @@ next update next friday!! let's respect non-sharing yumes and lets not harass do
 
 [@itrap-2245](https://github.com/itrap-2245) : Mafioso's YUME (non-sharing)
 
-[@Pleasantseverie](https://github.com/Pleasantseverie) : Grillby's YUME (sharing)
+[@Pleasantreverie](https://github.com/Pleasantreverie) : Grillby's YUME (sharing)
 
 [@GraveyardOfStars](https://github.com/GraveyardOfStars) : Baizhus YUME (non-sharing)
 
