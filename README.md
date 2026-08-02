@@ -1,6 +1,8 @@
 updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo-
 
-[@disorderlyfashion](https://GitHub.com/disorderlyfashion) : Verosika Mayday's YUME (non-sharing)
+[@freakedoutboy](https://github.com/freakedoutboy) : Abel's YUME (sharing)
+
+[@disorderlyfashion](https://gitHub.com/disorderlyfashion) : Verosika Mayday's YUME (non-sharing)
 
 [@Xaplastcore](https://github.com/Xaplastcore) : Ratcet's from transformers YUME (non-sharing)
 
