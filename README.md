@@ -1,5 +1,7 @@
 updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo-
 
+[@disorderlyfashion](https://GitHub.com/disorderlyfashion) : Verosika Mayday's YUME (non-sharing)
+
 [@Xaplastcore](https://github.com/Xaplastcore) : Ratcet's from transformers YUME (non-sharing)
 
 [@Lynxcified](https://github.com/Lynxcified) : Beachcomber & Moonknight's YUME
