@@ -1,10 +1,18 @@
-updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo-
+updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo- 
 
+[@Crxcifiedsklls](https://github.com/Crxcifiedsklls) : Neymar Jr's personal football (non-sharing)
+ 
+[@ACE0FHEART5](https://github.com/ACE0FHEART5) : Griefer's from blocktales YUME (non-sharing)
+  
 [@freakedoutboy](https://github.com/freakedoutboy) : Abel's YUME (sharing)
 
 [@disorderlyfashion](https://gitHub.com/disorderlyfashion) : Verosika Mayday's YUME (non-sharing)
 
-[@Xaplastcore](https://github.com/Xaplastcore) : Ratcet's from transformers YUME (non-sharing)
+[@R0DRICK-HEFFLEY](https://github.com/R0DRICK-HEFFLEY) : Rodrick Heffley and Dean Taylor's YUME (non-sharing)
+
+[@01-800-PAPU](https://github.com/01-800-PAPU) : q!aldos FAMILIAL YUME (hyper-sharing) 
+
+[@Xaplastcore](https://github.com/Xaplastcore) : Impactor's YUME (non-sharing)
 
 [@Lynxcified](https://github.com/Lynxcified) : Beachcomber & Moonknight's YUME
 
@@ -32,9 +40,19 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 
 [@GraveyardOfStars](https://github.com/GraveyardOfStars) : Baizhus YUME (non-sharing)
 
+[@starkic](https://gitHub.com/starkic) : Tony Stark's YUME
+
+[@Matt-1337](https://github.com/Matt-1337) Jean's YUME (non-sharing)
+
 [@peteybenjaminparker](https://github.com/peteybenjaminparker) : Peter Parker's YUME 
 
 [@MiguelOharaL0ver](https://github.com/MiguelOharaL0ver) : Miguel O'haras YUME (mirror-sharing)
+
+[@DEADP0ET](https://github.com/DEADP0ET) : Aizawa's YUME (non-sharing) 
+
+[@Nadd-nadd](https://gitHub.com/Nadd-nadd) : Katsuki Bakugos and Neito Monomas YUME (hyposharing)
+
+[@develesto](https://github.com/develesto) : Avoider's from Die of Death YUME 
 
 [@Xaplastcore](https://github.com/Xaplastcore) : Megatron's YUME (soft-sharing)
 
@@ -46,13 +64,13 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 
 [@mlgkent](https://github.com/mlgkent) : Damian Wayne's YUME (non-sharing)
 
-[@gamblersi](https://github.com/gamblersi) : Dignity's YUME
+[@gamblersi](https://github.com/gamblersi) : Dignity's YUME (selective-sharing)
 
 [@glisteningmirrors](https://GitHub.com/glisteningmirrors) : Boxten's YUME 
 
 [@AcxerSonnellino](https://github.com/AcxerSonnellino) : Guest 1337's YUME
 
-[@undyingregret](https://github.com/undyingregret) : Azurewrath's YUME
+[@undyingregret](https://github.com/undyingregret) : Azurewrath's YUME (non-sharing)
 
 [@01yaoimaster](https://github.com/01yaoimaster) : MR.Antenna YUME (sharing)
 
