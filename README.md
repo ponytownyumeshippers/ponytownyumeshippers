@@ -18,6 +18,8 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 
 [@Bobettekin](https://github.com/Bobettekin) : Looey's YUME
 
+[@undeadlost](https://github.com/undeadlost) : Mydei's YUME
+
 [@Vatrinyasin](https://github.com/Vatrinyasin) : Sae Itoshi's YUME (non-sharing)
 
 [@Knuckl3z](https://github.com/Knuckl3z) : Farmtale Sans & Killer Sans & Metal Sonic's YUME
@@ -46,6 +48,8 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 
 [@gamblersi](https://github.com/gamblersi) : Dignity's YUME
 
+[@glisteningmirrors](https://GitHub.com/glisteningmirrors) : Boxten's YUME 
+
 [@AcxerSonnellino](https://github.com/AcxerSonnellino) : Guest 1337's YUME
 
 [@undyingregret](https://github.com/undyingregret) : Azurewrath's YUME
@@ -55,3 +59,5 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 [@fuminoomi](https://github.com/fuminoomi) : Sans YUME
 
 [@WishingAngel](https://github.com/WishingAngel) : Subspace YUME
+
+[@scrsonmythighs](https://gitHub.com/scrsonmythighs) : Satoru Gojo's YUME (non-sharing)
