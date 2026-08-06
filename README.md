@@ -1,5 +1,9 @@
 updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo- 
 
+[@fuwafuransu](https://github.com/fuwafuransu) : Kugelmugel's familial YUME (sharing)
+
+[@ryomensukuna](https://gitHub.com/ryomensukuna) : Ryomen Sukuna's YUME (selective-sharing)
+
 [@foxtartaglia](https://gitHub.com/foxtartaglia) : Childe YUME
 
 [@sebvsene](https://gitHub.com/sebvsene) : Superboy Prime's YUME (non-sharing)
@@ -15,6 +19,10 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 [@starfollower](https://gitHub.com/starfollower) : Sword Phightings YUME (mirror-sharing)
 
 [@ACE0FHEART5](https://github.com/ACE0FHEART5) : Griefer's from blocktales YUME (non-sharing)
+
+[@CATAL0G](https://github.com/CATAL0G) : Urahara Kisuke's YUME (sharing)
+
+[@ayatosbathwater](https://github.com/ayatosbathwater) : Kamisatos Ayato's YUME (sharing)
   
 [@freakedoutboy](https://github.com/freakedoutboy) : Abel's YUME (sharing)
 
