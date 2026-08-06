@@ -1,5 +1,11 @@
 updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo- 
 
+[@foxtartaglia](https://gitHub.com/foxtartaglia) : Childe YUME
+
+[@sebvsene](https://gitHub.com/sebvsene) : Superboy Prime's YUME (non-sharing)
+
+[@bassiebloomingtonofficial](https://github.com/bassiebloomingtonofficial) : Wanderer and Nikolai's YUME (non-sharing)
+
 [@Crxcifiedsklls](https://github.com/Crxcifiedsklls) : Neymar Jr's personal football (non-sharing)
 
 [@burningsins](https://gitHub.com/burningsins) : Keigo Tamai's YUME (non-sharing)
