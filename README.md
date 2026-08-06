@@ -1,7 +1,13 @@
 updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo- 
 
 [@Crxcifiedsklls](https://github.com/Crxcifiedsklls) : Neymar Jr's personal football (non-sharing)
- 
+
+[@burningsins](https://gitHub.com/burningsins) : Keigo Tamai's YUME (non-sharing)
+
+[@aetherparadise](https://gitHub.com/aetherparadise) : Cynthia's YUME (non-sharing)
+
+[@starfollower](https://gitHub.com/starfollower) : Sword Phightings YUME (mirror-sharing)
+
 [@ACE0FHEART5](https://github.com/ACE0FHEART5) : Griefer's from blocktales YUME (non-sharing)
   
 [@freakedoutboy](https://github.com/freakedoutboy) : Abel's YUME (sharing)
