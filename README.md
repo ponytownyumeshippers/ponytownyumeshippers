@@ -10,9 +10,27 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 
 [@bassiebloomingtonofficial](https://github.com/bassiebloomingtonofficial) : Wanderer and Nikolai's YUME (non-sharing)
 
+[@Z4WARDUO](https://gitHub.com/Z4WARDUO) : Dio Brando and Josuke Higashikata's YUME 
+
 [@Crxcifiedsklls](https://github.com/Crxcifiedsklls) : Neymar Jr's personal football (non-sharing)
 
-[@burningsins](https://gitHub.com/burningsins) : Keigo Tamai's YUME (non-sharing)
+[@ArtistsLeafRibbon](https://github.com/ArtistsLeafRibbon) : Rui Kamishiro's (pjsk), Chance (forsaken) Itrapped (Roblox/mm12) Calypso (Block Tales) and Artful (die of death) YUME (sharing)
+
+[@wireplayer](https://github.com/wireplayer) : Badwares YUME (selective-sharing)
+
+[@fluffpuffzz](https://github.com/fluffpuffzz) : Nurse (A.H.A) YUME 
+
+[@ENUMAELISH](https://github.com/ENUMAELISH) : Emiya Shirou and Saber YUME 
+
+[@donniesgaptooth](https://github.com/donniesgaptooth) : Darth Maul and Silent Salt Cookie's YUME (non-sharing)
+
+[@whokilledmarkiplier](https://github.com/whokilledmarkiplier) : Luis Serra's YUME (sharing) 
+
+[@DANZNC](https://github.com/DANZNC) : Devil Wolf's YUME (mirror-sharing)
+
+[@oncology-angel](https://github.com/oncology-angel) : Aaron Burr, Nagito Komaeda and Gregory House YUME (non-sharing) 
+
+[@burningsins](https://gitHub.com/burningsins) : Keigo Takami's YUME (non-sharing)
 
 [@aetherparadise](https://gitHub.com/aetherparadise) : Cynthia's YUME (non-sharing)
 
