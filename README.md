@@ -1,6 +1,30 @@
-updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo- 
+updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo- btw DO not spam dw I will notice ur req 
 
 [@fuwafuransu](https://github.com/fuwafuransu) : Kugelmugel's familial YUME (sharing)
+
+[@Ironmary](https://github.com/Ironmary) : Simon/The convict from Iron lung YUME (selective-sharing)
+
+[@yellowdeltarune](https://github.com/yellowdeltarune) : Romeo (MCSM) and Blue (DELTARUNE) YUME (non-sharing)
+
+[@Blame-John](https://gitHub.com/Blame-John) : Brighteyes's YUME 
+
+[@LQDYTANO](https://github.com/LQDYTANO) : Ezra Bridger  and Lucifer (HH) YUME (non-sharing)
+
+[@GetJinx3d](https://github.com/GetJinx3d) : Jinx (arcane) YUME (void-sharing)
+
+[@thatorangecatt](https://github.com/thatorangecatt) : Grace Ashcroft's YUME (selective-sharing)
+
+[@gaylukas](https://github.com/gaylukas) : Aiden (MCSM) and Noli YUME (mirror-sharing)
+
+[@eversleeping-town](https://github.com/eversleeping-town) : Leon Kennedy and Anaxagoras (hrs) YUME (selective/sharing)
+
+[@tragicburn](https://github.com/tragicburn) : Captain Crimson's from among us YUME 
+
+[@MoriouChoRadio](https://github.com/MoriouChoRadio) : Benson (the passenger) and Cioccolata (jjba) YUME (non-sharing)
+
+[@moescream](https://github.com/meoscream) : Starscream's YUME (selective-sharing)
+
+[@misfortunes-s](https://github.com/misfortunes-s) : Ghost/ Simon Riley's YUME (non-sharing)
 
 [@ryomensukuna](https://gitHub.com/ryomensukuna) : Ryomen Sukuna's YUME (selective-sharing)
 
