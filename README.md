@@ -1,6 +1,18 @@
 updates when I feel like it!! let's respect non-sharing yumes and lets not harass doubles, xoxo- btw DO not spam dw I will notice ur req 
 
+[heathclair](https://github.com/heathclair) : Kromer (limbus company) YUME (mirror-sharing)
+
+[@pawz-bit](https://github.com/pawz-bit) : Burningspice's YUME (hyper-sharing)
+
+[@Caol-irl](https://github.com/Caol-irl) : Waxwell's YUME (non-sharing)
+
+[@demonbell3](https://github.com/demonbell3) : Vaggi's YUME (non-sharing)
+
 [@fuwafuransu](https://github.com/fuwafuransu) : Kugelmugel's familial YUME (sharing)
+
+[@karlgvuts](https://github.com/karlgvuts) : Wikilius's YUME (selective-sharing)
+
+[@FeralFlesh](https://github.com/FeralFlesh) : Parker Selfridge's (Avatar J.C) and Marius Josipovic's (Sneaky Pete) YUME (soft-sharing)
 
 [@Ironmary](https://github.com/Ironmary) : Simon/The convict from Iron lung YUME (selective-sharing)
 
