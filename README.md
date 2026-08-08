@@ -4,7 +4,7 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 
 [@pawz-bit](https://github.com/pawz-bit) : Burningspice's YUME (hyper-sharing)
 
-[@Caol-irl](https://github.com/Caol-irl) : Waxwell's YUME (non-sharing)
+[@caol-irl](https://github.com/caol-irl) : Waxwell's YUME (non-sharing)
 
 [@demonbell3](https://github.com/demonbell3) : Vaggi's YUME (non-sharing)
 
