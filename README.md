@@ -4,7 +4,7 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 
 [@pawz-bit](https://github.com/pawz-bit) : Burningspice's YUME (hyper-sharing)
 
-[@caol-irl](https://github.com/caol-irl) : Waxwell's YUME (non-sharing)
+[@coal-irl](https://github.com/coal-irl) : Waxwell's YUME (non-sharing)
 
 [@demonbell3](https://github.com/demonbell3) : Vaggi's YUME (non-sharing)
 
@@ -14,7 +14,7 @@ updates when I feel like it!! let's respect non-sharing yumes and lets not haras
 
 [@FeralFlesh](https://github.com/FeralFlesh) : Parker Selfridge's (Avatar J.C) and Marius Josipovic's (Sneaky Pete) YUME (soft-sharing)
 
-[@Ironmary](https://github.com/Ironmary) : Simon/The convict from Iron lung YUME (selective-sharing)
+[@lronmary](https://github.com/lronmary) : Simon/The convict from Iron lung YUME (selective-sharing)
 
 [@yellowdeltarune](https://github.com/yellowdeltarune) : Romeo (MCSM) and Blue (DELTARUNE) YUME (non-sharing)
 
